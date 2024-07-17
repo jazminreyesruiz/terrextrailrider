@@ -1,6 +1,6 @@
 # Publicación para Instagram
 
-1. - ![Imagen](https://drive.google.com/file/d/1PvX3uo36vR0_EG7jRNFJ0O2v8FZYFJ3M/view?usp=sharing)
+[Imagen](https://drive.google.com/file/d/1PvX3uo36vR0_EG7jRNFJ0O2v8FZYFJ3M/view?usp=sharing)
    
 
 2. **Adidas Terrex TrailRider**
