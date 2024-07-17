@@ -1,6 +1,6 @@
 # CRM de Correo Electrónico
 
-[Imagen]([https://drive.google.com/file/d/1cd-ZDg42DhGjk1Vhvy0eGB95YQsG_bsC/view?usp=sharing](https://drive.google.com/file/d/1cd-ZDg42DhGjk1Vhvy0eGB95YQsG_bsC/view?usp=sharing)
+[Imagen](https://drive.google.com/file/d/1cd-ZDg42DhGjk1Vhvy0eGB95YQsG_bsC/view?usp=sharing)
 
 **¡Descubre la durabilidad extrema de las adidas Terrex TrailRider!**
    
