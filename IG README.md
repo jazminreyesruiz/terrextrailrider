@@ -7,12 +7,12 @@
    Durabilidad garantizada para tus aventuras más extremas.
 
 3. **Características destacadas**
-   `✅` Amortiguación efectiva
-   `✅` Buena tracción
-   - Impermeabilidad y transpirabilidad
-   - Sostenibilidad
-   - Versatilidad y durabilidad
-   - Tecnología avanzada
+   - `✅` Amortiguación efectiva
+   - `✅` Buena tracción
+   - `✅` Impermeabilidad y transpirabilidad
+   - `✅` Sostenibilidad
+   - `✅` Versatilidad y durabilidad
+   - `✅` Tecnología avanzada
 
 4. **#Aventura #Durabilidad #AdidasTerrex**
    
