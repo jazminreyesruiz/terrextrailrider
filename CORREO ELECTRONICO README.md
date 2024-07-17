@@ -9,7 +9,7 @@
 ✔️ Sabemos que disfrutas de actividades al aire libre y entrenamientos intensos. Diseñadas para tus paseos y carreras matutinas, estas Terrex TrailRider ofrecen una excelente tracción y amortiguación, perfectas para terrenos difíciles. Con un diseño moderno y funcional, las Terrex TrailRider no solo se ven bien, sino que también proporcionan un ajuste perfecto y soporte excepcional. Ideales para tus entrenamientos matutinos y aventuras al aire libre.
 
 **Consíguelas ahora por solo $1,520**
- <p style="font-size:20px; color:orange;">Texto más grande y naranja.</p>  
+ <h2>Consíguelas ahora por solo $1,520</h2>  
 
 ¡Compra Ahora y Prepara tus Vacaciones!
 
