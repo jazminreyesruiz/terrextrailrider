@@ -3,23 +3,21 @@
 1. - ![Imagen](https://drive.google.com/file/d/1PvX3uo36vR0_EG7jRNFJ0O2v8FZYFJ3M/view?usp=sharing)
    
 
-2. **Texto Breve y Conciso**
-   - ¡Enfrenta cualquier terreno con las adidas Terrex TrailRider! Durabilidad garantizada para tus aventuras más extremas.
+2. **Adidas Terrex TrailRider**
+   Durabilidad garantizada para tus aventuras más extremas.
 
-3. **Características Destacadas**
-   - Amortiguación efectiva
-   - Buena tracción
+3. **Características destacadas**
+   `✅` Amortiguación efectiva
+   `✅` Buena tracción
    - Impermeabilidad y transpirabilidad
    - Sostenibilidad
    - Versatilidad y durabilidad
    - Tecnología avanzada
 
-4. **Hashtags Relevantes**
-   - #Aventura #Durabilidad #AdidasTerrex
-
-5. **Llamada a la Acción**
-   - ¡Compra ahora! Enlace en la biografía.
-
+4. **#Aventura #Durabilidad #AdidasTerrex**
+   
+5. **¡Compra ahora! Enlace en la biografía.**
+   
 6. **Enlace en la Biografía**
    - Más detalles en el [enlace de nuestra bio](https://adidas.com/terrex)
 
