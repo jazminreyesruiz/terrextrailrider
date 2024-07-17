@@ -3,7 +3,7 @@
 [Imagen](https://drive.google.com/file/d/1cd-ZDg42DhGjk1Vhvy0eGB95YQsG_bsC/view?usp=sharing)
 
 **¡Descubre la durabilidad extrema de las adidas Terrex TrailRider!**
-   
+<h1 style="color:purple;">¡Descubre la durabilidad extrema de las adidas Terrex TrailRider!</h1>   
 
  **Hola [Daniel],**
    
