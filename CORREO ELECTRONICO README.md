@@ -10,8 +10,8 @@
 
 <h2>👉 Consíguelas ahora por solo $1,520</h2>  
 
-<h2>¡Compra Ahora y Prepara tus Vacaciones!<h2>
+⛱️¡Compra Ahora y Prepara tus Vacaciones! ⛱️
 
 **Contacto: contacto@adidasmx.com | Tel: 800-123-4567**
    
-<small>[Cancelar suscripción](#)<small>
+[Cancelar suscripción](#)
