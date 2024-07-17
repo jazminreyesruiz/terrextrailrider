@@ -1,6 +1,6 @@
 # Anuncio para una Revista Digital
 
-<h1>**Adidas Terrex: Estilo y funcionalidad en un solo par**<h1>
+**Adidas Terrex: Estilo y funcionalidad en un solo par**
    
 [Imagen](https://drive.google.com/file/d/1cd-ZDg42DhGjk1Vhvy0eGB95YQsG_bsC/view?usp=sharing)
 
