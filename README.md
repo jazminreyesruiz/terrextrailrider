@@ -1,4 +1,4 @@
-#Anuncio para una Revista Digital
+Anuncio para una Revista Digital
 
 **Adidas Terrex: Estilo y funcionalidad en un solo par**
    
